@@ -1,5 +1,5 @@
 # 💫 About Me:
-Mert Faruk Gunes - Computer Science - Third year - First Grade Honour student.<br>Currently working on many side projects while studying...<br>Do like gaming and coding. Not currently developing any games.<br>Ask me anything.
+Mert Faruk Gunes - Computer Science - Third year - First Grade Honour student.<br>Currently working on many side projects while studying...<br>Do like gaming and coding. Not currently developing any games.<br>Ask me anything. - mertfaruk.ie@gmail.com
 
 
 ## 🌐 Socials:
